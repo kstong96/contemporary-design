@@ -1,2 +1,0 @@
-# contemporary-design
-contemporary design
